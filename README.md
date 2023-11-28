@@ -8,7 +8,7 @@
 
 - 👨‍💻 All of my projects are available at [https://linktr.ee/sumitlakum](https://linktr.ee/sumitlakum)
 
-- 📫 How to reach me **sumitlakum123@gamil.com**
+- 📫 How to reach me **sumitlakum123@gmail.com**
 </br>
 <h3 align="left">Connect with me:</h3>
 </br>
